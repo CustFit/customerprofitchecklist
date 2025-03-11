@@ -2,7 +2,7 @@
 
 ## Uncover Hidden Revenue in Your Existing Customer Base
 
-This checklist helps business owners, CEOs, and founders identify which customer insights actually drive revenue growth and which are just distractions.
+This checklist helps Business Owners, CEOs, and Founders identify which customer insights actually drive revenue growth and which are just distractions.
 
 ### 📋 SECTION 1: IDENTIFY YOUR MOST PROFITABLE CUSTOMER SEGMENTS
 
