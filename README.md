@@ -1,5 +1,3 @@
-# customerprofitchecklist
-
 # Customer Profit Triggers Checklist
 
 ## Uncover Hidden Revenue in Your Existing Customer Base
