@@ -44,7 +44,7 @@ If you've completed this checklist and want to uncover even more profit opportun
 
 [**Book Your Customer Goldmine Audit**](https://calendly.com/patricia-rubio/30min-chat)
 
-Or complete our [**Customer Profit Assessment**](https://forms.gle/YourGoogleFormLink) to see how we can help you transform your customer understanding in just 2 weeks.
+Or complete our [**Customer Profit Assessment**]([https://forms.gle/YourGoogleFormLink](https://docs.google.com/forms/d/e/1FAIpQLSczfPVDuSsVITAsxT_cjdtMGLyj238hMR3F4FUtUFqVg3VT7Q/viewform?usp=dialog) to see how we can help you transform your customer understanding in just 2 weeks.
 
 ---
 
